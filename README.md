@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lbrbence169
-- 👀 I’m interested in KISS BENCE
+- 👀 I’m interested in nothing
 - 🌱 I’m currently learning MATHS
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
